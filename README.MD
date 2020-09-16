@@ -1,4 +1,4 @@
-# QR_SURPRISES - QR_Jhosfer 🟡
+# QR_SURPRISES - QR_Patri 🟡
 
 Proyect from Patri by [@QR_Surprises](https://instagram.com/QR_Surprises) ⚠️.
 
